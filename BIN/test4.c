@@ -1,1 +1,1 @@
-if endasca baksbc skadjnk;askj jsnadak saknas djksaasd
+if endasca baksbc skadjnk;jsnadak saknas 
